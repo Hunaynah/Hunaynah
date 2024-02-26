@@ -2,4 +2,4 @@
 - 👀 I’m interested in data analytics and data scientist role.
 - 🌱 I’m currently learning python
 - 💞️ I’m looking to collaborate on freelancing project
-- 📫 You can reach me.   
+- 📫 You can reach me through linkdin Or Mail.
