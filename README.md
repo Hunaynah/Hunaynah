@@ -12,7 +12,7 @@
 - 💬 Ask me about **Data Analysis, Data related queries, Data Visualization, Creativity**
 
 - 📫 How to reach me
-  **umerjeehunaynah@gmail.com**
+  **hunaynah.u@gmail.com**
 
 - 📄 Know about my experiences on
   https://www.linkedin.com/in/hunaynah-umerjee
